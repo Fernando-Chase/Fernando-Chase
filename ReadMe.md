@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante da ADS na Fmu 3º semestres<br>Fiz curso técnico de ADS na Etec de Sapopemba <br>Atualmente trabalho como jovem aprendiz na Atlas Schindler como jovem aprendiz no setor jurídico <br>Estou a procura de Estagio <br>
+Sou estudante da ADS na Fmu 5º semestres<br>Fiz curso técnico de ADS na Etec de Sapopemba <br>Atualmente trabalho como jovem aprendiz na Simpress como jovem aprendiz no setor de Inovação 
 
 
 ## 🌐 Socials:
